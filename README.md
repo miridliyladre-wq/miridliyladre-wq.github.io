@@ -1,1 +1,0 @@
-# miridliyladre-wq.github.io
